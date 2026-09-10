@@ -1,2 +1,2 @@
-# lastory
-Lastory Terms of Service and Privacy Policy
+# storylay
+storylay Terms of Service and Privacy Policy
